@@ -14,7 +14,6 @@
 
 - 📫 How to reach me **dgoyal_be22@thapar.edu**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/13T2Aq60VcbWzwpVupp2fjni8QLYNiokK/view?usp=sharing](https://drive.google.com/file/d/13T2Aq60VcbWzwpVupp2fjni8QLYNiokK/view?usp=sharing)
 
 - ⚡ Fun fact **I enjoy exploring different dancing styles**
 
